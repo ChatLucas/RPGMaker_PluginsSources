@@ -1,0 +1,12 @@
+https://dk-plugins.ru/
+https://galvs-scripts.com/
+https://github.com/gimmer/RPG-Maker-MV-Plugins
+https://github.com/Hudell/mv-plugins
+https://github.com/SumRndmDde/RPG-Maker-MV-Plugins
+https://quxios.github.io/plugins
+https://himeworks.com/
+https://kdworkshop.net/
+http://sumrndm.site/
+https://alistairengine.wordpress.com/
+https://victorenginescripts.wordpress.com/
+http://www.yanfly.moe/
